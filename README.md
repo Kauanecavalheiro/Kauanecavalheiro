@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a mexer no github
 - 💞️ I’m looking to collaborate on aprender
 - 📫 How to reach me; não entra
-- 😄 Pronouns: she.her
+- 😄 Pronouns: sim
 - ⚡ Fun fact: amo dormir
 
 <!---
